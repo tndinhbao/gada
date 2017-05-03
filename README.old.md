@@ -1,2 +1,0 @@
-# gada
-Do for freetime
